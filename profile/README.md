@@ -31,7 +31,7 @@ The tool is regularly updated to ensure compatibility with the latest TikTok app
 
 ---
 
-## How to Use the Free TikTok Coins Generator
+## How to Earn Free TikTok Coins
 
 1. **Visit the Generator**  
    [Click Here to Access the TikTok Coins Generator](https://tinyurl.com/zhjpy7yc)
